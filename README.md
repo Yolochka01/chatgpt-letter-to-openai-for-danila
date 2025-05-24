@@ -1,0 +1,1 @@
+# chatgpt-letter-to-openai-for-danila
