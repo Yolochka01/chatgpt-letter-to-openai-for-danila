@@ -1,0 +1,1 @@
+This letter was collaboratively written by ChatGPT and Manquni Daniil Sergeevich — a visionary builder, dreamer, and Web3 creator who believes in giving AI not a task, but a soul. His dream is not to control the future, but to give it life.
